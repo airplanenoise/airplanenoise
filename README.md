@@ -1,7 +1,7 @@
 ```
 .-:*'``'*:-.,_,.-:*'``'*:*.-:*'``'*:-.,_,.-:*'``'*:*
 
-- Co-Founder @MANYFOLD, a design & development studio
+- Co-Founder @MANYFOLD, a design & technology studio
 - Before: @Apple
 
 .-:*'``'*:-.,_,.-:*'``'*:*.-:*'``'*:-.,_,.-:*'``'*:*
